@@ -1,0 +1,2 @@
+# jutnewyear
+kriz stratejisi
